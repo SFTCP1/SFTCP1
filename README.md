@@ -1,3 +1,10 @@
-### Hi there world 👋
+# Hi there world 👋
 
-I am **SwordFishTheChordedPlayer1** i came from YouTube by December 18, 2017.
+I am **SwordFishTheChordedPlayer1** i came from YouTube since December 18, 2017.
+
+# What am I?
+
+- I'm blue
+- I can do everything
+- I'm only Swordfish
+- I can do videos
