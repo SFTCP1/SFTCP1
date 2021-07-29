@@ -1,6 +1,6 @@
 ## Introduction:
 
-I'm **SwordFishTheChordedPlayer1**, the most channel that was camed from custom effect names -- SwordFishDiamondChorded.
+I'm **SwordFishTheChordedPlayer1**, the most channel that was evolved from custom effect names -- SwordFishDiamondChorded.
 SwordFishTheChordedPlayer1 was officially [launched to YouTube](https://www.youtube.com/c/SFTCP1official) by December 18 2017 and it was a most valuable channel around the world.
 
 # Bringing Brilliant People Together with SFTCP1
